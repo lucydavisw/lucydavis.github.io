@@ -1,1 +1,0 @@
-# lucydavis.github.io
